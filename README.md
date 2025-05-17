@@ -1,0 +1,1 @@
+# Afery-post-mafi-na-przyk-adzie-serwisu-komputerowego-kali-Well
